@@ -1,0 +1,1 @@
+# sis-global-email-assets
